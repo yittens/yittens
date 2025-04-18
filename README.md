@@ -40,4 +40,6 @@ i try to be laidback but i'm a little autistic so uh bear with me (｡•́‿�
 
 ---
 ![](https://raw.githubusercontent.com/yittens/info/main/starl.gif)
+
+
  thanks for checking out my info umm more tba whenever i feel like it (≧◡≦)
