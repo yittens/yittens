@@ -3,30 +3,29 @@
 ![](https://raw.githubusercontent.com/yittens/info/main/starl.gif)
 
 
-i try to be laidback but i'm a little autistic so uh bear with me. (｡•́‿•̀｡)
+i try to be laidback but i'm a little autistic so uh bear with me (｡•́‿•̀｡)
 
 ---
 
 ###  **not comfortable adding people 15 or under**  
-talking doesn't bother me, just no weird jokes (╯°□°）╯︵ ┻━┻
-im an adult so im heavily wary around kids !!
+• talking doesn't bother me, just no weird jokes (╯°□°）╯︵ ┻━┻
+• im an adult so im heavily wary around kids !!
 
 
 ---
 
 ###  **blunt + dry** 
-if you're upset by something i said let me know
+• if you're upset by something i said let me know
 
 ---
 
-###  idm c+h but i'll move away if i wanna.   
-(▰˘︹˘▰)
-im not always sitting still as i move around the map a lot, its not you its me
+###  idm c+h but i might move  (▰˘︹˘▰)
+• im not always sitting still as i move around the map a lot, its not you its me
 
 ---
 
 ### ♡ **ship ints are okay if you're a friend** ♡
-this includes any fandoms im in
+• this includes any fandoms im in
 
 ---
 
@@ -40,5 +39,5 @@ this includes any fandoms im in
 ✧ more on my [strawpage](https://yitten.straw.page) ✧
 
 ---
-
- thanks for checking out my info! (≧◡≦)
+![](https://raw.githubusercontent.com/yittens/info/main/starl.gif)
+ thanks for checking out my info umm more tba whenever i feel like it (≧◡≦)
