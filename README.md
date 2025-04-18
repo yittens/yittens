@@ -1,29 +1,38 @@
-# Hi, I'm Yitten / Todd (IDM, whatever you use)
+# ☆彡 hi, i'm yitten / todd (idm, whatever you use) ☆彡
 
-I try to be laidback but I'm a little autistic, so uh, hang with me.
+![cute header](https://your-image-url.com/cute-header.jpg)
 
----
-
-### **Not comfortable adding people 15+**
-Talking doesn't bother me, just no weird jokes.
+i try to be laidback but i'm a little autistic, so uh, hang with me. (｡•́‿•̀｡)
 
 ---
 
-### **Blunt + dry**
+###  **not comfortable adding people 15+**  
+talking doesn't bother me, just no weird jokes. (╯°□°）╯︵ ┻━┻
 
 ---
 
-### IDM C+H but I'll move away if I wanna.
+###  **blunt + dry** 
 
 ---
 
-### **Ship ints are okay if you're a friend**
+###  idm c+h but i'll move away if i wanna.   
+(▰˘︹˘▰)
 
 ---
 
-### Currently fixated on MHA, Marvel, DC, Hannibal, and some other stuff.  
-More on my [strawpage](https://yitten.straw.page)
+### ♡ **ship ints are okay if you're a friend** ♡
 
 ---
 
-Ty for reading !!
+### ☆彡 currently fixated on:
+- mha ◇
+- marvel ☆
+- dc ♡
+- hannibal (¬‿¬)
+- and some other stuff... (ﾟ∀ﾟ)
+
+✧ more on my [strawpage](https://yourlinkhere.com) ✧
+
+---
+
+ thanks for checking out my info! (≧◡≦)
