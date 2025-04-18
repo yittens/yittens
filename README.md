@@ -1,6 +1,6 @@
 # ☆彡 hi, i'm yitten / todd (idm, whatever you use) ☆彡
 
-![]![](https://raw.githubusercontent.com/yittens/info-/info/2e6604f31fee0e5c232b77193595cbb6.gif)
+![](https://raw.githubusercontent.com/yittens/info-/info/2e6604f31fee0e5c232b77193595cbb6.gif)
 
 
 i try to be laidback but i'm a little autistic, so uh, hang with me. (｡•́‿•̀｡)
