@@ -1,6 +1,6 @@
 # ☆彡 hi, i'm yitten / todd (idm, whatever you use) ☆彡
 
-![cute header](https://images.app.goo.gl/v2jQa)
+![](wip)
 
 i try to be laidback but i'm a little autistic, so uh, hang with me. (｡•́‿•̀｡)
 
