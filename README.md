@@ -7,8 +7,10 @@ i try to be laidback but i'm a little autistic so uh bear with me. (｡•́‿�
 
 ---
 
-###  **not comfortable adding people 15+**  
+###  **not comfortable adding people 15 or under**  
 talking doesn't bother me, just no weird jokes (╯°□°）╯︵ ┻━┻
+im an adult so im heavily wary around kids !!
+
 
 ---
 
