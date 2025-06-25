@@ -27,10 +27,6 @@
 - hannibal 
 - and some other stuff
 
-
-
-░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░
-
 ![](https://raw.githubusercontent.com/yittens/info/main/starl.gif)
 
 
