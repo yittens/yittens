@@ -1,8 +1,8 @@
-carrd has more links to my other social profiles + dnis
+carrd has more links to my other social profiles + detailed dnis
 
 strawpage has fandom interests ^_^
 
+do not interact if you're an avid shotacon / lolicon / incestian / DID faker / over the age of 100
+
 ## dry + i don't use tonetags
 
-
-and umm d o NOT interact if u like shotacon / lolicon / faking disorders / incest or any weird shit like that. fictional or not idc its weird as helly!
