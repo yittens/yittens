@@ -1,4 +1,4 @@
-carrd has more links to my other social profiles + detailed dnis
+carrd has more links to my other social profiles + art stuff. most active on twitter though
 
 strawpage has fandom interests ^_^
 
