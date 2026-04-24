@@ -1,8 +1,7 @@
-carrd has more links to my other social profiles + art stuff. most active on twitter though
+doing free art of your fursonas, check atabook!
 
-strawpage has fandom interests ^_^
+carrd has art socials ^_^
 
-do not interact if you're an avid shotacon / lolicon / incestian / DID faker / over the age of 100
+dni if your personality is being problematic
 
-## dry + i don't use tonetags
-
+## dry, i don't use tonetags
