@@ -1,4 +1,3 @@
-doing free art of your fursonas, check atabook!
 
 carrd has art socials ^_^
 
