@@ -1,4 +1,4 @@
-
+<div align="center">
 
 ![Alt Text](https://64.media.tumblr.com/845e9dfaaadc03ffbe19a913103d409c/b8cd044ac524d7bb-8e/s2048x3072/a1d12c967d93802347f61c35ef4c20f93b20b14b.pnj)
 <br> 
@@ -44,13 +44,22 @@
 <br>
 <br>
 
-![Alt Text](https://gifcity.carrd.co/assets/images/gallery14/a66d9c92.gif?v=3fc8f5cd)![Alt Text](https://gifcity.carrd.co/assets/images/gallery14/a11f2934.gif?v=3fc8f5cd)![Alt Text](https://gifcity.carrd.co/assets/images/gallery14/990f95e3.gif?v=3fc8f5cd)![Alt Text](https://lupinus.neocities.org/ilovespongebob.gif)![Alt Text](https://lupinus.neocities.org/reallifevampire.gif)![Alt Text](https://lupinus.neocities.org/jeffthekillerrr.gif)
+![Alt Text](https://gifcity.carrd.co/assets/images/gallery14/a66d9c92.gif?v=3fc8f5cd)![Alt Text](https://gifcity.carrd.co/assets/images/gallery14/a11f2934.gif?v=3fc8f5cd)![Alt Text](https://gifcity.carrd.co/assets/images/gallery14/990f95e3.gif?v=3fc8f5cd)
 <br>
-![Alt Text](https://gifcity.carrd.co/assets/images/gallery14/9abd604f.gif?v=3fc8f5cd)![Alt Text](https://gifcity.carrd.co/assets/images/gallery14/bd480149.gif?v=3fc8f5cd)![Alt Text](https://gifcity.carrd.co/assets/images/gallery14/42a27d88.gif?v=3fc8f5cd)![Alt Text](https://lupinus.neocities.org/bats.gif)![Alt Text](https://lupinus.neocities.org/autismspectrum.gif)![Alt Text](https://lupinus.neocities.org/howdy.gif)
+![Alt Text](https://lupinus.neocities.org/ilovespongebob.gif)![Alt Text](https://lupinus.neocities.org/reallifevampire.gif)![Alt Text](https://lupinus.neocities.org/jeffthekillerrr.gif)
 <br>
-![Alt Text](https://gifcity.carrd.co/assets/images/gallery23/e5475b61.gif?v=3fc8f5cd)![Alt Text](https://gifcity.carrd.co/assets/images/gallery23/e639c77d.gif?v=3fc8f5cd)![Alt Text](https://gifcity.carrd.co/assets/images/gallery23/cd054bb7.gif?v=3fc8f5cd)![Alt Text](https://lupinus.neocities.org/yeehaw.gif)![Alt Text](https://lupinus.neocities.org/bareyourteeth.gif)![Alt Text](https://lupinus.neocities.org/victimsarentweall.gif)
+![Alt Text](https://gifcity.carrd.co/assets/images/gallery14/9abd604f.gif?v=3fc8f5cd)![Alt Text](https://gifcity.carrd.co/assets/images/gallery14/bd480149.gif?v=3fc8f5cd)![Alt Text](https://gifcity.carrd.co/assets/images/gallery14/42a27d88.gif?v=3fc8f5cd)
+<br>
+![Alt Text](https://lupinus.neocities.org/bats.gif)![Alt Text](https://lupinus.neocities.org/autismspectrum.gif)![Alt Text](https://lupinus.neocities.org/howdy.gif)
+<br>
+![Alt Text](https://gifcity.carrd.co/assets/images/gallery23/e5475b61.gif?v=3fc8f5cd)![Alt Text](https://gifcity.carrd.co/assets/images/gallery23/e639c77d.gif?v=3fc8f5cd)![Alt Text](https://gifcity.carrd.co/assets/images/gallery23/cd054bb7.gif?v=3fc8f5cd)
+<br>
+![Alt Text](https://lupinus.neocities.org/yeehaw.gif)![Alt Text](https://lupinus.neocities.org/bareyourteeth.gif)![Alt Text](https://lupinus.neocities.org/victimsarentweall.gif)
 <br>
 <br>
 <br>
 <br>
-![Alt Text](https://64.media.tumblr.com/7e32f4a8c250e28f88b575aae4401d92/b8cd044ac524d7bb-d1/s2048x3072/a05214d3d7cd5ad200d30d3f0d83737842b15692.pnj)
+![Alt Text](https://i.pinimg.com/1200x/f8/34/11/f83411d4b69f7a1931df6f722eddc95a.jpg)
+
+
+</div>
